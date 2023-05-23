@@ -1,2 +1,2 @@
-Yves Perly Ngabo
+Yves Perly Ngabo  &
 Marie Gelase Gotto
